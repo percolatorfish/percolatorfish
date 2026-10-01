@@ -1,3 +1,5 @@
+<div align="center"> a collection of things that sum up my sick & twisted mind.
+
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/74b760205dbf621175e22f88aaa5d7a5/8548780ba34f81c4-ef/s100x200/c1f472627f2416dbe9702f74ca6583f095cad06a.pnj)
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/fc446b20598a1a1aafb774bea78623ca/b6c47b3c74cf0f3a-ef/s100x200/69b2451051e1875cd69e42d372607078dd7a051b.gifv)
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/d36db7ce185a0609faa5a1d4d24683eb/4d7a9e77c452ad67-af/s100x200/5e1e04108d6bb82b1ec345883a5e9a181149fcc9.pnj)

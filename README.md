@@ -1,6 +1,6 @@
 <div align="center">
 <details>
-  <summary><b>BYI</b></summary>
+  <summary><b>Please Read</b></summary>
 <div align="center">
 
 My name is Will. I am 19, I use he/him, and I am a gay man.
@@ -16,7 +16,7 @@ In case it's not obvious, I am an ID kin of Will Graham. Doubles PLEASE do not i
 </details>
 </div>
 
-
+<div align="center"> Stamps to give you a glimpse into my SICK & TWISTED mind... heh.
 
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/74b760205dbf621175e22f88aaa5d7a5/8548780ba34f81c4-ef/s100x200/c1f472627f2416dbe9702f74ca6583f095cad06a.pnj)
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/fc446b20598a1a1aafb774bea78623ca/b6c47b3c74cf0f3a-ef/s100x200/69b2451051e1875cd69e42d372607078dd7a051b.gifv)

@@ -1,4 +1,20 @@
-<div align="center"> a collection of stamps that sum up my sick & twisted mind.
+<div align="center">
+<details>
+  <summary><b>BYI</b></summary>
+<div align="center">
+
+My name is Will. I am 19, I use he/him, and I am a gay man.
+
+I am off-tab most times, but I am always C+H. Come say hi if you'd like! 
+
+I might come off as cold/overly formal. Lmk if you need me to adjust my behaviour!
+
+I am a non-sharing yumeshipper. If you don't like that, block me. Ily [Hannibal](https://hannibal.fandom.com/wiki/Hannibal_Lecter_(TV)), [Dale](https://twinpeaks.fandom.com/wiki/Dale_Cooper), [Eleven](https://tardis.fandom.com/wiki/Eleventh_Doctor), & [Mulder](https://x-files.fandom.com/wiki/Fox_Mulder) <3
+</div>
+</details>
+</div>
+
+
 
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/74b760205dbf621175e22f88aaa5d7a5/8548780ba34f81c4-ef/s100x200/c1f472627f2416dbe9702f74ca6583f095cad06a.pnj)
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/fc446b20598a1a1aafb774bea78623ca/b6c47b3c74cf0f3a-ef/s100x200/69b2451051e1875cd69e42d372607078dd7a051b.gifv)

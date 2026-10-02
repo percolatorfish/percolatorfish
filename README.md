@@ -11,7 +11,7 @@ I might come off as cold/overly formal. Lmk if you need me to adjust my behaviou
 
 I am a non-sharing selfshipper. Ily [Hannibal](https://hannibal.fandom.com/wiki/Hannibal_Lecter_(TV)), [Dale](https://twinpeaks.fandom.com/wiki/Dale_Cooper), [Eleven](https://tardis.fandom.com/wiki/Eleventh_Doctor), & [Mulder](https://x-files.fandom.com/wiki/Fox_Mulder) <3
 
-In case it's not obvious, I am an ID kin of Will Graham. Doubles PLEASE do not interact.
+In case it's not obvious, I am an [ID kin](https://kindefinitions.carrd.co/#selfhood) of Will Graham. Doubles PLEASE do not interact.
 </div>
 </details>
 </div>

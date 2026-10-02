@@ -9,7 +9,9 @@ I am off-tab most times, but I am always C+H. Come say hi if you'd like!
 
 I might come off as cold/overly formal. Lmk if you need me to adjust my behaviour!
 
-I am a non-sharing yumeshipper. If you don't like that, block me. Ily [Hannibal](https://hannibal.fandom.com/wiki/Hannibal_Lecter_(TV)), [Dale](https://twinpeaks.fandom.com/wiki/Dale_Cooper), [Eleven](https://tardis.fandom.com/wiki/Eleventh_Doctor), & [Mulder](https://x-files.fandom.com/wiki/Fox_Mulder) <3
+I am a non-sharing selfshipper. Ily [Hannibal](https://hannibal.fandom.com/wiki/Hannibal_Lecter_(TV)), [Dale](https://twinpeaks.fandom.com/wiki/Dale_Cooper), [Eleven](https://tardis.fandom.com/wiki/Eleventh_Doctor), & [Mulder](https://x-files.fandom.com/wiki/Fox_Mulder) <3
+
+In case it's not obvious, I am an ID kin of Will Graham. Doubles PLEASE do not interact.
 </div>
 </details>
 </div>

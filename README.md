@@ -3,20 +3,20 @@
   <summary><b>Please Read</b></summary>
 <div align="center">
 
-My name is Will. I am 19, I use he/him, and I am a gay man.
+My name is Will. I am a 19 year old gay man.
 
-I am off-tab most times, but I am always C+H. Come say hi if you'd like! 
+I am off-tab most times, whispering is the best way to get my attention. 
 
-I might come off as cold/overly formal. Lmk if you need me to adjust my behaviour!
+I may come off as cold/overly formal. Lmk if you need me to adjust my behaviour!
 
 I am a non-sharing selfshipper. Ily [Hannibal](https://hannibal.fandom.com/wiki/Hannibal_Lecter_(TV)), [Dale](https://twinpeaks.fandom.com/wiki/Dale_Cooper), [Eleven](https://tardis.fandom.com/wiki/Eleventh_Doctor), & [Mulder](https://x-files.fandom.com/wiki/Fox_Mulder) <3
 
-In case it's not obvious, I am an [ID kin](https://kindefinitions.carrd.co/#selfhood) of [Will Graham](https://hannibal.fandom.com/wiki/Will_Graham_(TV)). Doubles PLEASE do not interact.
+In case it's not obvious, I am an [ID kin](https://kindefinitions.carrd.co/#selfhood) of [Will Graham](https://hannibal.fandom.com/wiki/Will_Graham_(TV)). Doubles will be blocked.
 </div>
 </details>
 </div>
 
-<div align="center"> Stamps to give you a glimpse into my SICK & TWISTED mind... heh.
+<div align="center"> Stamps to give you a glimpse into my SICK & TWISTED mind.
 
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/74b760205dbf621175e22f88aaa5d7a5/8548780ba34f81c4-ef/s100x200/c1f472627f2416dbe9702f74ca6583f095cad06a.pnj)
 ![ezgif com-animated-gif-maker](https://64.media.tumblr.com/fc446b20598a1a1aafb774bea78623ca/b6c47b3c74cf0f3a-ef/s100x200/69b2451051e1875cd69e42d372607078dd7a051b.gifv)
